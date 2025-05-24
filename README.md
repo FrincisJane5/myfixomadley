@@ -1,1 +1,1 @@
-# myfixomadley Frincis Jane P. Omadley
+ Frincis Jane P. Omadley
